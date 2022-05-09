@@ -4,7 +4,6 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I like to code all time🤣
-- 🥅 2021 Goals: Be a world top web developer
 - ⚡ Fun fact: I love to play dota 2
 
 ### Connect with me:
